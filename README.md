@@ -1,5 +1,6 @@
 # About me
-**![image](https://github.com/user-attachments/assets/4f1f70dd-d110-4794-8992-9d33a271bb0c)
+**![image](https://github.com/user-attachments/assets/0ad73354-98a1-4c56-b0ab-ff0c0818cd76)
+
 Hi, I'm xiaobaozi1996. Welcome to my HomePage!**
 
 
