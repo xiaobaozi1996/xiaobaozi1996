@@ -1,2 +1,2 @@
 # homepage
-主页定制化
+Hi, I'm Xiaobaozi1996. Welcome to my HomePage!
